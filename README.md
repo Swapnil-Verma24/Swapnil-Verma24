@@ -1,7 +1,7 @@
 # Swapnil Verma
 
 **📫 Contact Information:**
-- Email: 21ce01020@iitbbs.ac.in  
+- Email: swapnilverma2401@gmail.com  
 - GitHub: [Swapnil-Verma24](https://github.com/Swapnil-Verma24)  
 - LinkedIn: [Swapnil Verma](https://www.linkedin.com/in/swapnilverma2401)  
 - Kaggle: [Triz0n](https://www.kaggle.com/triz0n)  
